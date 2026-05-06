@@ -7,4 +7,4 @@ UCSUR-Business and Systems Engineer..
 - 💬 Ask me about nothing..
 - 📫 How to reach me: EdeLsonn..
 - 😄 Pronouns: HE..
-- ⚡ Fun fact: I paid for her xxx..
+- ⚡ Fun fact: I paid for her xxx...
